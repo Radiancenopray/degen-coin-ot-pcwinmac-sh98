@@ -1,4 +1,4 @@
-# 
+# Premium degen coin sniper bot herramientas para Mac OS | Instantáneo degen coin sniper bot herramientas para PC Windows. Con órdenes de mercado y seguimiento de precios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
